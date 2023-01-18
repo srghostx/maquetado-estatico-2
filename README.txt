@@ -1,0 +1,1 @@
+Decidí cambiar el maquetado por otro
